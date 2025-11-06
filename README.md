@@ -1,1 +1,0 @@
-# AULA-QUARTA-FEIRA-C-
